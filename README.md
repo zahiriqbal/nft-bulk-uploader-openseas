@@ -11,3 +11,4 @@
 
 
 
+Buy my nfts: https://opensea.io/wicked_thingz?tab=created :) 
